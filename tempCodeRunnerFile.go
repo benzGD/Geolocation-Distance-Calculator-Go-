@@ -1,0 +1,1 @@
+Pyramids of Giza, Egypt
